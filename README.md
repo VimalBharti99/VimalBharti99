@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VimalBharti
 - 🫵 you can call me Rosy also 
-- 👀 interested in designing 
+- 👀 interested in web designing 
 - 🌱 currently learning 
 - 👻 poke me on instagram @rosyjaikar
 
